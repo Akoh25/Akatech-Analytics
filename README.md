@@ -1,0 +1,1 @@
+My name is Akoh,I'm a Power BI developer and Excel Enthusiast. Depending on your preference, I'm an SQL and Python data analyst. I have provided actionable insights and data visulisations for many clients
